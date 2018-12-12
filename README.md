@@ -1,2 +1,2 @@
 # camping-colorado
-awesome spots to visit in colorado
+:taco: :tent: awesome spots to visit in colorado
